@@ -1,4 +1,4 @@
-# ATTACKA! 
+# ATTACKA! KILL OR BE KILL
 
     L I C E N S E
     Version 2.0, xx February 2021
